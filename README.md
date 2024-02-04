@@ -1,0 +1,3 @@
+
+Black dollar chemical +27634928462 by technician oscar
+I know one technician that help my daddy to clean and developed his black dollar with ssd solution chemicals and powder he clean his black note into original dollar, this is the technician Whatsapp number +27604581586 he works on percentage base he only ask for travel cost of chemical and machine, can you just imagine, his very honesty I never see such before, my daddy was defraud by so many so-called chemical company, many so-called chemical seller didn't knows about developing black money, contact this gentleman he will perfect your black-notes or any color or any currency
